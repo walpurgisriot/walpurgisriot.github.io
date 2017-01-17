@@ -1,6 +1,6 @@
-Don't even think of reaching for a calculator - use your head. What's 15 plus 27 plus 49 multiplied by 17??? A bit tricky? Do you ever get the feeling that we rely too much on calculators? When I went to school, it became compulsory to buy a calculator in the third year - very exciting; we all got one of those Casio scientific models with loads of buttons that I never quite worked out
+Don't even think of reaching for a calculator - use your head. What's 15 plus 27 plus 49 multiplied by 17??? A bit tricky? Do you ever get the feeling that we rely too much on calculators? When I went to school, it became compulsory to buy a calculator in the third year - very exciting; we all got one of those Casio scientific models with loads of buttons that I never quite worked
 
-There's no doubt that we do rely quite heavily on our calculators. I always have one lying around, and the number of times that I reach for it when I could really work it out in my head is well, incalculable.
+There's no doubt that we do rely quite heavily on our calculators. I always have one lying around, and the number of times that I reach for it when I could really work it out in my head is well incalculable.
 
 This is the theory behind Abacus/TheBasics 3.0 - designed to be a "stimulating and enjoyable way of addressing this subject by taking advantage of up-to-date-technology", the software is primarily aimed at children aged seven and upwards, but can really be used by anyone wanting to scrape the rust off their mental arithmetic skills.
 
